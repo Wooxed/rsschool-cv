@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Wooxed.github.io/rsschool-cv/cv
